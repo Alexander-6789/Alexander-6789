@@ -1,0 +1,8 @@
+-Alexander Scull
+-Cyber Security
+-Freshman
+-Bethlehem Georgia
+-Cyber Security Analyst
+-Basics of coding
+-I like dogs
+-Favorite movie is Lego Movie
